@@ -1,1 +1,0 @@
-# viral17detik
